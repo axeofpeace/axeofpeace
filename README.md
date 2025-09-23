@@ -1,4 +1,4 @@
-@SHXTGVN please go bald
+[@SHXTGVN](https://github.com/SHXTGVN) please go bald
 
 <p align="center">
 1# emerald duo fan
