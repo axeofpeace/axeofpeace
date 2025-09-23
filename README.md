@@ -7,3 +7,5 @@
 
 <p align="center">
 @chopped-meat on tumblr
+
+<br> ![](https://komarev.com/ghpvc/?username=Iovejoy&color=5C5C5C&style=flat-square&label=⠀⠀´ཀ`⠀⠀) <br>
