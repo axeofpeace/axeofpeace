@@ -1,4 +1,6 @@
 [@SHXTGVN](https://github.com/SHXTGVN) old man please go bald <3
+<p align="center">
+  c+h welcome any time, w2i if im not answering
 
 <p align="center">
 1# emerald duo fan
