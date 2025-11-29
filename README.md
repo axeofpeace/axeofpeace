@@ -1,12 +1,3 @@
-[@SHXTGVN](https://github.com/SHXTGVN) old man please go bald <3
-
-[@kadita-san](https://github.com/kadita-san) guys someone please get this guy off my lawn she won't stop harassing me
-<p align="center">
-  c+h welcome any time, w2i if im not answering
-
-<p align="center">
-1# emerald duo fan
-
 <p align="center">
 <img src="https://file.garden/ZrPqBUEI4Dz27rRP/github.emeraldduo" width="200">
 </p>
