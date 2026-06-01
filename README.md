@@ -7,3 +7,4 @@
 
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=axeofpeace&color=5C5C5C&style=flat-square&label=⠀⠀nerds⠀⠀">
+<a href="https://technoblade.atabook.org/">ata</a>
