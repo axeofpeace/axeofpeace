@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-@chopped-meat on tumblr
+<p align="justify"> $\color{#72cc56}{\textsf{@chopped-meat on tumblr}}$</h6>
 
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=axeofpeace&color=5C5C5C&style=flat-square&label=⠀⠀nerds⠀⠀">
